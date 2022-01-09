@@ -1,2 +1,0 @@
-# Oryantasyon-Odevi
-Yücel Gül
